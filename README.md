@@ -8,7 +8,7 @@
   
   ### 👨‍💻 Lead / Software Engineer 2 @ Onetera Technologies | MS CS @ USC | Ex Deloitte
   
-  📍 **Los Angeles, CA** | 📧 haripriyaraov@gmail.com
+  📍 **Los Angeles, CA** 
   
 </div>
 
